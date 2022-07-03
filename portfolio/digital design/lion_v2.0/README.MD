@@ -1,0 +1,1 @@
+This folder contains a commission I did in 2019 for a lion in the low-poly style. It was later painted on acrylic as well to match the lion in traditional media.
